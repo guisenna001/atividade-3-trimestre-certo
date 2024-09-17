@@ -1,1 +1,1 @@
-# atividade-3-trimestre-certo
+# atividade-3-trimestre
